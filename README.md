@@ -1,13 +1,28 @@
-⚠️ 𝑫𝑰𝑺𝑪𝑳𝑨𝑰𝑴𝑬𝑹 — 𝑹𝑬𝑨𝑫 𝑩𝑬𝑭𝑶𝑹𝑬 𝑼𝑺𝑬
-𝑩𝒚 𝒖𝒔𝒊𝒏𝒈 𝒕𝒉𝒊𝒔 𝒑𝒂𝒏𝒆𝒍 / 𝒂𝒑𝒑𝒍𝒊𝒄𝒂𝒕𝒊𝒐𝒏, 𝒚𝒐𝒖 𝒂𝒖𝒕𝒐𝒎𝒂𝒕𝒊𝒄𝒂𝒍𝒍𝒚 𝒂𝒈𝒓𝒆𝒆 𝒕𝒐 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒊𝒏𝒈 𝒍𝒊𝒔𝒕𝒆𝒅 𝒃𝒆𝒍𝒐𝒘.
+⚠️ DISCLAIMER — READ BEFORE USE
+By using this panel / application, you automatically agree to everything listed below.
 
-𝑻𝒉𝒆 𝒕𝒐𝒐𝒍 𝒊𝒔 𝒑𝒓𝒐𝒗𝒊𝒅𝒆𝒅 “𝒂𝒔 𝒊𝒔,” 𝒇𝒐𝒓 𝒊𝒏𝒇𝒐𝒓𝒎𝒂𝒕𝒊𝒐𝒏𝒂𝒍 𝒂𝒏𝒅 𝒆𝒏𝒕𝒆𝒓𝒕𝒂𝒊𝒏𝒎𝒆𝒏𝒕 𝒑𝒖𝒓𝒑𝒐𝒔𝒆𝒔.
-𝑾𝒆 𝒂𝒓𝒆 𝑵𝑶𝑻 𝒓𝒆𝒔𝒑𝒐𝒏𝒔𝒊𝒃𝒍𝒆 𝒇𝒐𝒓:
-𝒕𝒉𝒆 𝒃𝒍𝒐𝒄𝒌𝒊𝒏𝒈 (𝑩𝑨𝑵) 𝒐𝒇 𝒚𝒐𝒖𝒓 𝑫𝒊𝒔𝒄𝒐𝒓𝒅 𝒂𝒄𝒄𝒐𝒖𝒏𝒕𝒔 𝒂𝒏𝒅 𝒃𝒐𝒕𝒔;
-𝒕𝒉𝒆 𝒍𝒐𝒔𝒔 𝒐𝒇 𝒕𝒐𝒌𝒆𝒏𝒔, 𝒂𝒄𝒄𝒆𝒔𝒔, 𝒅𝒂𝒕𝒂, 𝒄𝒐𝒊𝒏𝒔, 𝒐𝒓 𝒂𝒏𝒚 𝒐𝒕𝒉𝒆𝒓 𝒂𝒔𝒔𝒆𝒕𝒔;
-𝒂𝒏𝒚 𝒅𝒊𝒓𝒆𝒄𝒕 𝒐𝒓 𝒊𝒏𝒅𝒊𝒓𝒆𝒄𝒕 𝒄𝒐𝒏𝒔𝒆𝒒𝒖𝒆𝒏𝒄𝒆𝒔 𝒐𝒇 𝒖𝒔𝒆;
-𝒗𝒊𝒐𝒍𝒂𝒕𝒊𝒐𝒏𝒔 𝒐𝒇 𝑫𝒊𝒔𝒄𝒐𝒓𝒅’𝒔 𝒕𝒆𝒓𝒎𝒔 𝒐𝒇 𝒔𝒆𝒓𝒗𝒊𝒄𝒆 (𝑻𝒐𝑺) 𝒂𝒏𝒅 𝒂𝒑𝒑𝒍𝒊𝒄𝒂𝒃𝒍𝒆 𝒍𝒂𝒘𝒔 𝒐𝒏 𝒚𝒐𝒖𝒓 𝒑𝒂𝒓𝒕.
-𝑨𝒖𝒕𝒐𝒎𝒂𝒕𝒊𝒏𝒈 𝒎𝒆𝒔𝒔𝒂𝒈𝒆 𝒔𝒆𝒏𝒅𝒊𝒏𝒈 𝒎𝒂𝒚 𝒗𝒊𝒐𝒍𝒂𝒕𝒆 𝑫𝒊𝒔𝒄𝒐𝒓𝒅’𝒔 𝑹𝒖𝒍𝒆𝒔. 𝒀𝒐𝒖𝒓 𝒂𝒄𝒄𝒐𝒖𝒏𝒕/𝒃𝒐𝒕 𝒎𝒂𝒚 𝒃𝒆 𝒃𝒂𝒏𝒏𝒆𝒅 𝒑𝒆𝒓𝒎𝒂𝒏𝒆𝒏𝒕𝒍𝒚 — 𝒕𝒉𝒊𝒔 𝒊𝒔 𝒆𝒏𝒕𝒊𝒓𝒆𝒍𝒚 𝒚𝒐𝒖𝒓 𝒓𝒊𝒔𝒌.
-𝑻𝒐𝒌𝒆𝒏𝒔 𝒂𝒏𝒅 𝒂𝒄𝒄𝒐𝒖𝒏𝒕𝒔 𝒂𝒓𝒆 𝒆𝒏𝒕𝒆𝒓𝒆𝒅 𝒐𝒏𝒍𝒚 𝒃𝒚 𝒚𝒐𝒖 𝒂𝒏𝒅 𝒂𝒓𝒆 𝒚𝒐𝒖𝒓𝒔 𝒂𝒍𝒐𝒏𝒆. 𝑾𝒆 𝒅𝒐 𝒏𝒐𝒕 𝒄𝒐𝒍𝒍𝒆𝒄𝒕 𝒐𝒓 𝒔𝒕𝒐𝒓𝒆 𝒚𝒐𝒖𝒓 𝒕𝒐𝒌𝒆𝒏𝒔 𝒐𝒏 𝒐𝒖𝒓 𝒔𝒆𝒓𝒗𝒆𝒓𝒔.
-𝑰𝒕 𝒊𝒔 𝒑𝒓𝒐𝒉𝒊𝒃𝒊𝒕𝒆𝒅 𝒕𝒐 𝒖𝒔𝒆 𝒕𝒉𝒆 𝒕𝒐𝒐𝒍 𝒇𝒐𝒓 𝒔𝒑𝒂𝒎, 𝒉𝒂𝒓𝒂𝒔𝒔𝒎𝒆𝒏𝒕, 𝒇𝒓𝒂𝒖𝒅, 𝒐𝒓 𝒂𝒏𝒚 𝒊𝒍𝒍𝒆𝒈𝒂𝒍 𝒂𝒄𝒕𝒊𝒗𝒊𝒕𝒊𝒆𝒔.
-𝑰𝒇 𝒚𝒐𝒖 𝒅𝒊𝒔𝒂𝒈𝒓𝒆𝒆 𝒘𝒊𝒕𝒉 𝒆𝒗𝒆𝒏 𝒐𝒏𝒆 𝒑𝒐𝒊𝒏𝒕, 𝒅𝒐 𝒏𝒐𝒕 𝒖𝒔𝒆 𝒕𝒉𝒆 𝒕𝒐𝒐𝒍.
+
+The tool is provided “as is,” for informational and entertainment purposes.
+
+
+We are NOT responsible for:
+
+
+
+the blocking (BAN) of your Discord accounts and bots;
+
+the loss of tokens, access, data, coins, or any other assets;
+
+any direct or indirect consequences of use;
+
+violations of Discord’s terms of service (ToS) and applicable laws on your part.
+
+Automating message sending may violate Discord’s Rules. Your account/bot may be banned permanently — this is entirely your risk.
+
+Tokens and accounts are entered only by you and are yours alone. We do not collect or store your tokens on our servers.
+
+It is prohibited to use the tool for spam, harassment, fraud, or any illegal activities.
+
+If you disagree with even one point, do not use the tool.
+
+You can get your Licence key in our discord 
